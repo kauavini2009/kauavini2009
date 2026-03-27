@@ -92,8 +92,8 @@ Sou um estudante dedicado que busca desenvolver habilidades práticas através d
 ## 📫 Contato
 
 * 🔗 GitHub: https://github.com/kauavini2009
-* 📧 (adicione seu e-mail aqui)
-* 💼 (adicione LinkedIn se tiver)
+* 📧 Email: Kauavinicius2009k@gmail.com
+* 💼 linkedin: https://www.linkedin.com/in/kau%C3%A3-vinicius-727a403ba/
 
 ---
 
